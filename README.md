@@ -18,7 +18,7 @@ yo, I’m @andrewlikescats ;
 <br/> *and reading, i'll probably ask to repeat smth, i don't mean to be rude in* 
 <br/> *any ways.*
 <br/> 4. ***if you see me in my MD. House, Aggretsuko, Catghost or Arcane ponies pls INT !!!***
-<br/> 5. *PLEASE dont correct/mock my english when i mispell sumn, i have a total
+<br/> 5. *PLEASE dont correct/mock my english when i mispell sumn, i have a total*
 <br/> *of 0 respect for that language <3*
 
 <br/> ૮ ˶ˆ꒳ˆ˵ ა that's about it, thank you for checking this out !! ♡
