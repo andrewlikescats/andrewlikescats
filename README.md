@@ -6,7 +6,6 @@ yo, I’m @andrewlikescats ;
 <br/> big fan of games in general <3
 <br /> **homosexual, biromantic,** 
 <br/> **transmasc and aroace**
-<br /> °⭒︶꒷♡꒦︶꒦˖°︶꒦꒷˖°
 
 ![image](https://user-images.githubusercontent.com/99940081/155023579-431925fa-8747-4c13-9514-836b930ce354.png)
 
