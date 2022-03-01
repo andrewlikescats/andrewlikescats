@@ -1,8 +1,8 @@
 yo, I’m @andrewlikescats ;
 <br /> you can call me andrew, darryl or ciel.
-<br/> i go by it/that/he/prinz .
+<br/> i go by it/that/he/prinz . 
  
-<br /> i'm brazilian, 16 and a
+<br /> brazilian, artist and a 
 <br/> big fan of games in general <3
 <br /> **homosexual, biromantic,** 
 <br/> **transmasc and aroace**
