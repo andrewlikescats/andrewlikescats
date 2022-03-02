@@ -1,6 +1,6 @@
 yo, I’m @andrewlikescats ;
 <br /> you can call me andrew, darryl or ciel.
-<br/> i go by it/that/he/prinz . 
+<br/> i go by it/that/he/prinz/void
  
 <br /> brazilian, artist and a 
 <br/> big fan of games in general <3
@@ -20,7 +20,7 @@ yo, I’m @andrewlikescats ;
 <br/> 5. *PLEASE dont correct/mock my english when i mispell sumn, i have a total*
 <br/> *of 0 respect for that language <3*
 
-<br/> ૮ ˶ˆ꒳ˆ˵ ა that's about it, thank you for checking this out !! ♡
+<br/>  that's about it, thank you for checking this out !! ♡
 
 
 <!---
