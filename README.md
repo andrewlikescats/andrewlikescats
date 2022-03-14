@@ -12,7 +12,7 @@ yo, wassup.
 <br/> you're probably here from the horse city game (https://pony.town) !! 
 <br/> so here's some stuff I'd like you to know.
 
-<br/> 1. i get really quiet so i'm sorry if i cant really keep a convo up;
+<br/> 1. i get really quiet so i'm sorry if i cant really keep a convo up
 
 <br/> 2. sometimes i space out and dont pay attention to things, please be patient.
 
