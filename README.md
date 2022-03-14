@@ -1,11 +1,9 @@
-yo, I’m @andrewlikescats ;
-<br/> you can call me andrew, darryl or ciel :^) 
-<br/> my pronouns are it/that/he/prinz/void;
-<br/> if you dont know how to use neos or it/its
-<br/> and that on phrases, u can use he/him.
+yo, wassup.
+<br/> andrew, darryl, sal or ciel 
+<br/> it/he/prinz/void
  
 <br/> brazilian, artist and a 
-<br/> big fan of games in general <3
+<br/> big fan of little casual games 
 <br/> **homosexual, biromantic,** 
 <br/> **transmasc and aroace**
 
