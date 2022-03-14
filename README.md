@@ -15,14 +15,14 @@ yo, wassup.
 
 <br/> 2. sometimes i space out and dont pay attention to things, please be patient.
 
-<br/> 3. i'm dyslexic and type fast, so I have a hard time at both spelling and reading, i'll probably ask to repeat smth, i don't mean to be rude in any ways.
+<br/> 3. i'm dyslexic and type fast, so I have a hard time at both spelling and reading, i'll probably ask you to repeat smth, i don't mean to be rude in any ways.
 
-<br/> 4. PLEASE dont correct/mock my english when i mispell sumn, i have a total of 0 respect for that language <3 (also a take back to topic 3. i have no control over what i type because most times i stumble on my thoughts.)
+<br/> 4. PLEASE dont correct/mock my english when i mispell sumn, i have a total of 0 respect for that language (also a take back to topic 3. i have no control over what i type because most times i stumble on my thoughtz.)
 
-<br/> 5. ***DO NOT, IN ANY SITUATION COPY OR TAKE INSPIRATION FROM MY PONIES. MOST OF MY PONIES COME FROM LOOKING AT REFERENCES AND MY OWN WORK.***
+<br/> 5. ***NO COPIES OR INSPIRATION FROM MY PONIES, FANGZ <3.***
 
 
-<br/>  that's about it, thank you for checking this out !! ♡
+<br/>  thatz about it, thank you for checking thiz out !! ♡
 
 
 <!---
