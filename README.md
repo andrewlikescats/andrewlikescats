@@ -9,7 +9,7 @@ yo, wassup.
 
 ![image](https://user-images.githubusercontent.com/99940081/158275074-cf1f31c9-e649-46bb-870d-4fcc150bb3e5.png)
 
-<br/> you're probably here from the horse city game (https://pony.town) !! 
+<br/> you're probably here from the horse city game [pony town](https://pony.town) !! 
 <br/> so here's some stuff I'd like you to know.
 
 <br/> 1. i get really quiet so i'm sorry if i cant really keep a convo up
@@ -26,7 +26,8 @@ yo, wassup.
 
 
 <br/>  thatz about it, thank you for checking thiz out !! ♡
-[meow](https://youtu.be/d9hMo5Pd6b0)
+<br/>
+<br/> [meow](https://youtu.be/d9hMo5Pd6b0)
 
 <!---
 andrewlikescats/andrewlikescats is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
