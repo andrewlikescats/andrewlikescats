@@ -1,5 +1,5 @@
 yo, wassup.
-<br/> andrew, darryl, sal or ciel 
+<br/> andrew, darryl or ciel 
 <br/> it/he/prinz/void
  
 <br/> brazilian, artist and a 
