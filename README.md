@@ -31,7 +31,7 @@ yo, wassup.
 <br/> pt-br / english
 <br/> big fan of little casual games ! 
 <br/> **homosexual, biromantic,** 
-<br/> **transmasc and aroace**
+<br/> **transmasc (agender) and aroace**
 
 <br/> please dont be afraid of intearcting !! i really want new friendz :D
 <br/>  thatz about it, thank you for checking thiz out !! ♡
