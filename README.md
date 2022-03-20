@@ -33,7 +33,6 @@ yo, wassup.
 <br/> **homosexual, biromantic,** 
 <br/> **transmasc and aroace**
 
-<br/>
 <br/> please dont be afraid of intearcting !! i really want new friends :D
 <br/>  thatz about it, thank you for checking thiz out !! ♡
 
