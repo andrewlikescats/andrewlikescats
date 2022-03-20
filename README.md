@@ -24,7 +24,7 @@ yo, wassup.
 <br/> ᓚᘏᗢ .. a bit about me.
 <br/> my birthday is on april 17.
 <br/> i like drawing and plan on doing it professionally
-<br/> i really LOVE music, i plan on learning
+<br/> i really LOVE music, i wanna learn
 <br/> electric guitar and kalimba.
 <br/>
 <br/> i'm brazilian. 
