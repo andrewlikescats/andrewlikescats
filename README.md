@@ -1,11 +1,6 @@
 yo, wassup.
 <br/> andrew, darryl, sal or ciel
 <br/> it/he/prinz/void
- 
-<br/> brazilian, artist and a 
-<br/> big fan of little casual games 
-<br/> **homosexual, biromantic,** 
-<br/> **transmasc and aroace**
 
 ![image](https://user-images.githubusercontent.com/99940081/158275074-cf1f31c9-e649-46bb-870d-4fcc150bb3e5.png)
 
@@ -24,7 +19,23 @@ yo, wassup.
 
 <br/> 5. ***NO COPIES OR INSPIRATION FROM MY PONIES, FANGZ <3.***
 
+![image](https://user-images.githubusercontent.com/99940081/159184854-fe27538a-f8f1-4b84-a834-48566f43fdf6.png)
 
+
+ᓚᘏᗢ .. a bit about me.
+<br/> my birthday is on april 17.
+<br/> i like drawing and plan on doing it professionally
+<br/> i really LOVE music, i plan on learning
+<br/> electric guitar and kalimba.
+
+<br/> i'm brazilian. 
+<br/> pt-br / english
+<br/> big fan of little casual games ! 
+<br/> **homosexual, biromantic,** 
+<br/> **transmasc and aroace**
+
+
+<br/> please dont be afraid of intearcting !! i really want new friends :D
 <br/>  thatz about it, thank you for checking thiz out !! ♡
 <br/>
 <br/> [meow](https://youtu.be/d9hMo5Pd6b0)
