@@ -16,10 +16,10 @@ yo, wassup !??
 <br/> 3. i'm dyslexic and type fast, so I have a hard time at both spelling and reading, i'll probably
 <br/> ask you to repeat smth, i don't mean to be rude in any ways.
 
-<br/> 4. PLEASE dont correct/mock my english when i mispell stuff, it makez me uncomfortable. (also a take 
-<br/> back to topic 3. i have no control over what i type because most times i stumble on my thoughtz.)
+<br/> 4. PLEASE dont correct/mock my english when i mispell stuff, it makes me uncomfortable. (also a take 
+<br/> back to topic 3. i have no control over what i type because most times i stumble on my thoughts.)
 
-<br/> 5. ***NO COPIES OR INSPIRATION FROM MY PONIES, FANGZ <3.***
+<br/> 5. ***NO INSPIRATION FROM MY PONIES, THANKS ! <3.***
 
 <br/>![image](https://user-images.githubusercontent.com/99940081/159185048-d45e57fc-7ada-491b-9073-ec447394eb5b.png)
 
