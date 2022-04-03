@@ -1,5 +1,6 @@
 yo, wassup.
-<br/> andrew, darryl, sal or ciel
+<br/> andrew, darryl, ciel,
+<br/> or any copinglink name.
 <br/> it/he/prinz/void 
 
 <br/>![image](https://user-images.githubusercontent.com/99940081/158275074-cf1f31c9-e649-46bb-870d-4fcc150bb3e5.png)
@@ -33,8 +34,8 @@ yo, wassup.
 <br/> **homosexual, biromantic,** 
 <br/> **transmasc (agender) and aroace**
 
-<br/> please dont be afraid of intearcting !! i really want new friendz :D
-<br/>  thatz about it, thank you for checking thiz out !! ♡
+<br/> please dont be afraid of intearcting !! i really want new friends :D
+<br/>  thats about it, thank you for checking this out !! ♡
 
 <br/>[meow](https://youtu.be/d9hMo5Pd6b0)
 
