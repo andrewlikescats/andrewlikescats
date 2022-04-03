@@ -1,7 +1,7 @@
 yo, wassup !?? 
 <br/> call me andrew, darryl, ciel,
-<br/> or any copinglink name!!
-<br/> [copinglink list](https://rentry.co/garfielflasagna) <3
+<br/> or any of my coping link's names!!
+<br/> [copinglinks list](https://rentry.co/garfielflasagna) :^)
 <br/> it/he/prinz/void
 
 <br/>![image](https://user-images.githubusercontent.com/99940081/158275074-cf1f31c9-e649-46bb-870d-4fcc150bb3e5.png)
