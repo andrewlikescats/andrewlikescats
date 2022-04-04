@@ -4,7 +4,7 @@ yo, wassup !??
 <br/> [copinglinks list](https://rentry.co/garfeiiedllasagna) :^)
 <br/> it/he/prinz/void
 
-<br/>![image](https://user-images.githubusercontent.com/99940081/158275074-cf1f31c9-e649-46bb-870d-4fcc150bb3e5.png)
+<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960674042162085929/Untitled269_20220404195449.jpg?width=1025&height=265)
 
 <br/> you're probably here from the horse city game [pony town](https://pony.town) !! 
 <br/> so here's some stuff I'd like you to know.
@@ -21,7 +21,7 @@ yo, wassup !??
 
 <br/> 5. ***NO INSPIRATION FROM MY PONIES, THANKS ! <3.***
 
-<br/>![image](https://user-images.githubusercontent.com/99940081/159185048-d45e57fc-7ada-491b-9073-ec447394eb5b.png)
+<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960674042363392040/Untitled269_20220404195453.jpg?width=1025&height=265)
 
 <br/> ᓚᘏᗢ .. a bit about me.
 <br/> my birthday is on april 17.
