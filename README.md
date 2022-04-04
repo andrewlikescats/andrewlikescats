@@ -4,7 +4,7 @@ yo, wassup !??
 <br/> [copinglinks list](https://rentry.co/garfeiiedllasagna) :^)
 <br/> it/he/prinz/void
 
-<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960674042162085929/Untitled269_20220404195449.jpg?width=1025&height=265)
+<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960679477006991430/unknown.png?width=1025&height=393)
 
 <br/> you're probably here from the horse city game [pony town](https://pony.town) !! 
 <br/> so here's some stuff I'd like you to know.
@@ -21,7 +21,7 @@ yo, wassup !??
 
 <br/> 5. ***NO INSPIRATION FROM MY PONIES, THANKS ! <3.***
 
-<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960674042363392040/Untitled269_20220404195453.jpg?width=1025&height=265)
+<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960679592589394070/unknown.png?width=1025&height=393)
 
 <br/> ᓚᘏᗢ .. a bit about me.
 <br/> my birthday is on april 17.
@@ -38,7 +38,7 @@ yo, wassup !??
 <br/> please dont be afraid of intearcting !! i really want new friends :D
 <br/>  thats about it, thank you for checking this out !! ♡
 
-<br/>[meow](https://youtu.be/d9hMo5Pd6b0)
+<br/>[meow](https://youtu.be/w_ruJqPxaLk)
 
 <!---
 andrewlikescats/andrewlikescats is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
