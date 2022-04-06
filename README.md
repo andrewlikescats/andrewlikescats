@@ -40,6 +40,10 @@ yo, wassup !??
 
 <br/>[meow](https://youtu.be/w_ruJqPxaLk)
 
+<br/> ***have you seen them?***
+<br/>![image](https://user-images.githubusercontent.com/99940081/162092973-c3a2e12a-2088-4ae3-970c-540f224cbace.png)
+<br/> they're on a total of 85 watchlists and have commited various war crimes
+
 <!---
 andrewlikescats/andrewlikescats is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
