@@ -9,12 +9,12 @@ yo, wassup !??
 <br/> you're probably here from the horse city game [pony town](https://pony.town) !! 
 <br/> so here's some stuff I'd like you to know.
 
-<br/> 1. i get really quiet so i'm sorry if i cant really keep a convo up
+<br/> 1. I'm sociallt anxious so i'm sorry if i cant really keep a convo up. I'm trying gmy best to improve.
 
 <br/> 2. sometimes i space out and dont pay attention to things, please be patient.
 
 <br/> 3. i'm dyslexic and type fast, so I have a hard time at both spelling and reading, i'll probably
-<br/> ask you to repeat smth, i don't mean to be rude in any ways.
+<br/> ask you to repeat smth, or take some time to understand what you said fully; i don't mean to be rude in any ways.
 
 <br/> 4. PLEASE dont correct/mock my english when i mispell stuff, it makes me uncomfortable. (also a take 
 <br/> back to topic 3. i have no control over what i type because most times i stumble on my thoughts.)
@@ -39,10 +39,6 @@ yo, wassup !??
 <br/>  thats about it, thank you for checking this out !! ♡
 
 <br/>[meow](https://youtu.be/w_ruJqPxaLk)
-
-<br/> ***have you seen them?***
-<br/>![image](https://user-images.githubusercontent.com/99940081/162092973-c3a2e12a-2088-4ae3-970c-540f224cbace.png)
-<br/> they're on a total of 85 watchlists and have commited various war crimes
 
 <!---
 andrewlikescats/andrewlikescats is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
