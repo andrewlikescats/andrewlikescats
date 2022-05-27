@@ -1,4 +1,5 @@
-yo, wassup !?? good to see u here !
+## yo, wassup !?? good to see u here !
+<br/> u can call me by any of my listed names or coping links names.
 <br/> [copinglinks list](https://rentry.co/garfeiiedllasagna) ⁺ [prns page](https://en.pronouns.page/@andrewlikescats) ⁺ [pronouny](https://pronouny.xyz/u/gatosilicagel)
 
 <br/> ᓚᘏᗢ .. a bit about me.
@@ -9,14 +10,12 @@ yo, wassup !?? good to see u here !
 <br/>
 <br/> i'm brazilian. 
 <br/> pt-br / english
-<br/> big fan of little casual games ! 
 
 <br/>![image](https://media.discordapp.net/attachments/846452802183888926/960679477006991430/unknown.png?width=1025&height=393)
+### you're probably here from the horse city game [pony town](https://pony.town) !! 
+ so here's some stuff I'd like you to know.
 
-<br/> you're probably here from the horse city game [pony town](https://pony.town) !! 
-<br/> so here's some stuff I'd like you to know.
-
-<br/> 1. I'm sociallt anxious so i'm sorry if i cant really keep a convo up. I'm trying gmy best to improve.
+<br/> 1. I'm sociallt anxious so i'm sorry if i cant really keep a convo up. I'm trying my best to improve.
 
 <br/> 2. sometimes i space out and dont pay attention to things, please be patient.
 
