@@ -11,7 +11,7 @@
 <br/> i'm brazilian. 
 <br/> pt-br / english
 
-<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960679477006991430/unknown.png?width=1025&height=393)
+<br/>![meow](https://media.discordapp.net/attachments/846462773097398272/979854558689919026/20220513_165505.jpg)
 ### you're probably here from the horse city game [pony town](https://pony.town) !! 
  so here's some stuff I'd like you to know.
 
@@ -27,7 +27,7 @@
 
 <br/> 5. idm any ingame interactions (kissing, booping, sneezing, etc)!!
 
-<br/>![image](https://media.discordapp.net/attachments/846452802183888926/960679592589394070/unknown.png?width=1025&height=393)
+<br/>![image](https://media.discordapp.net/attachments/846462773097398272/979854558471794768/20220513_165511.jpg)
 
 
 <br/> please dont be afraid of intearcting !! i really want new friends :D
