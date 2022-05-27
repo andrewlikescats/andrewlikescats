@@ -1,8 +1,15 @@
-yo, wassup !?? 
-<br/> call me andrew, darryl, ciel,
-<br/> or any of my coping link's names!!
-<br/> [copinglinks list](https://rentry.co/garfeiiedllasagna) :^)
-<br/> it/he/prinz/void
+yo, wassup !?? good to see u here !
+<br/> [copinglinks list](https://rentry.co/garfeiiedllasagna) ⁺ [prns page](https://en.pronouns.page/@andrewlikescats) ⁺ [pronouny](https://pronouny.xyz/u/gatosilicagel)
+
+<br/> ᓚᘏᗢ .. a bit about me.
+<br/> my birthday is on april 17.
+<br/> i like drawing and plan on doing it professionally
+<br/> i really LOVE music, i wanna learn
+<br/> electric guitar and kalimba.
+<br/>
+<br/> i'm brazilian. 
+<br/> pt-br / english
+<br/> big fan of little casual games ! 
 
 <br/>![image](https://media.discordapp.net/attachments/846452802183888926/960679477006991430/unknown.png?width=1025&height=393)
 
@@ -17,23 +24,12 @@ yo, wassup !??
 <br/> ask you to repeat smth, or take some time to understand what you said fully; i don't mean to be rude in any ways.
 
 <br/> 4. PLEASE dont correct/mock my english when i mispell stuff, it makes me uncomfortable. (also a take 
-<br/> back to topic 3. i have no control over what i type because most times i stumble on my thoughts.)
+<br/> back to topic 3. i have no control over what i type because most times i think faster than i type n vice versa.)
 
-<br/> 5. ***NO INSPIRATION FROM MY PONIES, THANKS ! <3.***
+<br/> 5. idm any ingame interactions (kissing, booping, sneezing, etc)!!
 
 <br/>![image](https://media.discordapp.net/attachments/846452802183888926/960679592589394070/unknown.png?width=1025&height=393)
 
-<br/> ᓚᘏᗢ .. a bit about me.
-<br/> my birthday is on april 17.
-<br/> i like drawing and plan on doing it professionally
-<br/> i really LOVE music, i wanna learn
-<br/> electric guitar and kalimba.
-<br/>
-<br/> i'm brazilian. 
-<br/> pt-br / english
-<br/> big fan of little casual games ! 
-<br/> **homosexual, biromantic,** 
-<br/> **transmasc (agender) and aroace**
 
 <br/> please dont be afraid of intearcting !! i really want new friends :D
 <br/>  thats about it, thank you for checking this out !! ♡
