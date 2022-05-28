@@ -19,7 +19,7 @@
 
 <br/> 2. sometimes i space out and dont pay attention to things, please be patient.
 
-<br/> 3. i'm dyslexic and type fast, so I have a hard time at both spelling and reading, i'll probably
+<br/> 3. i'm dyslexic and dysgraphic, so I have a hard time at both spelling and reading, i'll probably
 <br/> ask you to repeat smth, or take some time to understand what you said fully; i don't mean to be rude in any ways.
 
 <br/> 4. PLEASE dont correct/mock my english when i mispell stuff, it makes me uncomfortable. (also a take 
