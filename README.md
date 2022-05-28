@@ -1,14 +1,14 @@
-## yo, wassup !?? good to see u here !
-<br/> u can call me by any of my listed names or coping links names.
-<br/> [copinglinks list](https://rentry.co/garfeiiedllasagna) ⁺ [prns page](https://en.pronouns.page/@andrewlikescats) ⁺ [pronouny](https://pronouny.xyz/u/gatosilicagel)
+##  wassup !?? good to see u here !
+<br/> u can call me by any of my listed
+<br/> names or coping links names.
+<br/> more info about me on my [rentry](https://rentry.co/silicageleater)
+<br/> [copinglinks list](https://rentry.co/garfeiiedllasagna) ⁺ [pronouny](https://pronouny.xyz/u/gatosilicagel)
 
-<br/> ᓚᘏᗢ .. a bit about me.
-<br/> my birthday is on april 17.
+<br/> ᓚᘏᗢ .. a bit about stuff i like
 <br/> i like drawing and plan on doing it professionally
 <br/> i really LOVE music, i wanna learn
 <br/> electric guitar and kalimba.
 <br/>
-<br/> i'm brazilian. 
 <br/> pt-br / english
 
 <br/>![meow](https://media.discordapp.net/attachments/846462773097398272/979854558689919026/20220513_165505.jpg)
